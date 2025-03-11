@@ -1,4 +1,8 @@
-## Hi there 👋
+## am a lazy dude
+
+- :kr: from South Korea, still not good at English
+- 🌱 Studying Industrial & Management Engineering at Kyonggi Univercity
+- :mailbox_closed: I do NOT look Emails, Please contact with Discord: *cpl_wub_7313*
 
 <!--
 **Cpl-Wub/Cpl-Wub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
